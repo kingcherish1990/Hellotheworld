@@ -1,2 +1,3 @@
 # Hellotheworld
-start the dream
+start the dream 
+For the future, work hard, come on!
